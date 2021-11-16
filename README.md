@@ -1,1 +1,1 @@
-# Progect-for-3-semester
+# Cool progect-for-3-semester
